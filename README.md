@@ -9,3 +9,10 @@ We can choose to hear an audio amd communicate the voice of a famous actor .
 ## 4. Motion recognition system
 ## 5. Gesture recognition system
 ## 6. Emotion recognition system
+## 7. Facial expression recognition
+## 8. Camera eyes and facial recognition
+## 9. Moaning system
+Hot, intense, exciting moaning ro every touch of private parts
+## 10. Heating system:
+
+Human body temperature 
